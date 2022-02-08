@@ -5,5 +5,5 @@
 - 👯 I’m looking to collaborate on nothing yet.
 - 🤔 I’m looking for help with anything data.
 - 💬 Ask me about my journey with data so far.
-- 📫 How to reach me: Twitter @colin_carman
+- 📫 How to reach me: Twitter @colin_the_fool
 - ⚡ Fun fact: I have 6 kids!
